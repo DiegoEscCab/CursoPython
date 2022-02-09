@@ -1,1 +1,0 @@
-[![activar-env.png](https://i.postimg.cc/Wp8BVf56/activar-env.png)](https://postimg.cc/Thy7qQMp)
